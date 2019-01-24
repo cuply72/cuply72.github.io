@@ -1,6 +1,6 @@
 # Yang Liu
 
-CUP
+(CUP)[http://www.cup.edu.cn]
 
 ## Publications
 
