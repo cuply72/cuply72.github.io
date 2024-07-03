@@ -4,7 +4,7 @@
 
 [LinkedIn](https://www.linkedin.com/in/yang-liu-30483915/)
 
-[Homeage-中文主页](https://faculty.cup.edu.cn/liuyang/)
+[Homepage-中文主页](https://faculty.cup.edu.cn/liuyang/)
 
 [China University of Petroleum(Beijing)]( https://www.cup.edu.cn/english/)
 
