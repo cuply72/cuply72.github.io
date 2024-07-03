@@ -1,6 +1,6 @@
 # Yang Liu, China University of Petroleum (Beijing)
 
-[ResearchGate](https://www.researchgate.net/profile/Yang_Liu193?ev=hdr_xprf&_sg=wMNTFf21FCUkSXxjhJ3fdPkZ0sy4SfoLwHxeD-fGKBV7551qODzGW0ezL8l8GOIqCISGsmVlX-iTY2MmMKdynLV-)
+[ResearchGate](https://www.researchgate.net/profile/Yang-Liu-924)
 
 [LinkedIn](https://www.linkedin.com/in/yang-liu-30483915/)
 
